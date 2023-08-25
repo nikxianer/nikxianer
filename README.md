@@ -1,5 +1,5 @@
 # 💫 About Me:
- ✨I’m a pattern finder that believes in the power of people connecting dots and making sense through everything to create something useful. <br><br>Work Experience:<br>👩‍💻Research Analyst, Coursalytics<br>👩‍💻Co-founder | Research Analyst, Le team project<br><br><br>Education:<br>👩‍🎓Bachelor's degree in Sociology & Social Informatics, Higher School of Economics<br>
+ ✨I’m a pattern finder that believes in the power of people connecting dots and making sense through everything to create something useful. <br><br>Work Experience:<br>👩‍💻Research Analyst | Data Analyst, Coursalytics<br>👩‍💻Data Analyst, BeautyHunter project<br><br><br>Education:<br>👩‍🎓Bachelor's degree in Sociology & Social Informatics, Higher School of Economics<br>
 
 
 ## 🌐 Socials:
